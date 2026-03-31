@@ -1,4 +1,4 @@
-Hi I'm JeongHun Kang
-**I'm Korean**
-E-mail : rkdwjdgns@gmail.com
+Hi I'm JeongHun Kang<br>
+
+E-mail : rkdwjdgns@gmail.com<br>
 instagram : badminton_machien
