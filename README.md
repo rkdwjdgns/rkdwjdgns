@@ -3,6 +3,8 @@
 <br>
 <img src="image/gguii.jpeg" width="500">
 <br>
-<div>gmail : rkdwjdgns2004@gmail.com</div>
-<a href="https://www.instagram.com/badminton_machine/" font-size : 10px;>instagram : gguizziigguiizzii</div>
-b
+<div>gmail : gguiizziii@gmail.com</div>
+<a href="https://www.instagram.com/badminton_machine/" font-size : 10px;>instagram : gguiizziigguiizzii</div>
+<br/>
+<div>꾸이이찌이이꾸이삐이꾸이잉</div>
+<div>꾸이삐요꾸이삐용꾸잉</div>
